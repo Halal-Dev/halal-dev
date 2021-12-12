@@ -10,7 +10,7 @@
 - 👯 I’m looking to collaborate on triangular commerce
 - 🤔 I’m looking for help with having a life
 - 💬 Ask me about didn't ask
-- 📫 How to reach me: Telegram, send urs by doing an issue in this rep
+- 📫 How to reach me: insta:n4hdha, Telegram, send urs by doing an issue in this rep
 - 😄 Pronouns: slave, zenji
 - ⚡ Fun fact: i code on intel Atom
 
